@@ -1,7 +1,7 @@
 ## boas vindas ao meu perfil 👍
 Meu nome é Gabriel Pena Costa
--  Nasci dia 03/12/2008👶
--  Eu jogo futebol, futsal e vôlei⚽🏐
+-  Nasci dia 03/12/1256 antes de cristo👶
+-  Eu jogo biti tenis
 -  Moro em Araraquara Sp🌍
 -  Entendo bastante de World, excel e PowerPoint😎
 
